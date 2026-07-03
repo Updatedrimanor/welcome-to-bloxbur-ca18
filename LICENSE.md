@@ -1,4 +1,4 @@
-#  
+#  best welcome to bloxburg Scripts is the best welcome to bloxburg Script, featuring one-hit kill and custom skins. Safe and powerful for all your
 
 
 
